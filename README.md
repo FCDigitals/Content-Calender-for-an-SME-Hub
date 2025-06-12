@@ -25,7 +25,7 @@
 17. (https://docs.google.com/document/d/1-LE4jUcqX6HGom8yl1che3sje3CZSZxG8AGmqA5EMug/edit?usp=sharing)
 18. (https://docs.google.com/document/d/1OExX5bP6DptGMef5vXSZTo6Y-0XQ3xl3-u0aYaNe8_g/edit?usp=sharing)
 19. (https://docs.google.com/document/d/12ScHYDKijTga3tDoIv62BQBWwxifWAQdCEF_xJcbH4E/edit?usp=sharing)
-	(
+
 #[Links to Email Drafts for Tech Revolution Event]
 1. (https://docs.google.com/document/d/1fR-Q_X0MELE4ROp60RRtn7gFkgbmjH9CpvRETiMHEZw/edit?usp=sharing)
 2. (https://docs.google.com/document/d/18lsAdNb1z_NFDoQLRgrUhtDVEdM2SrulH_S2Ys-nw_0/edit?usp=sharing)
